@@ -1,8 +1,6 @@
-# Livro de receitas :man_cook:
+#  #Cheguei!!!!! :smile:
 
-Olá! Bem vindo ao meu livro de receitas :wave:
+Olá! Estou super feliz em ter conseguindo avançar mais degrau!!! :rocket:
 
-- Churrasco
-
-  
+:running_man:
 
